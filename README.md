@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **oyeludeelijah@gamil.com**
 
-- ⚡ Fun fact **I play CODM when i 'am less busy**
+- ⚡ Fun fact **I'm a _Computer Science_ student from _Nigeria_**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
